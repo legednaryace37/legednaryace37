@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @legednaryace37
+- 👋 Hi, I’m @legendaryaryace37
 - 👀 I’m interested in fitness,coding,hacking,personal development
 - 🌱 I’m currently learning web development,linux.
 - 💞️ I’m looking to collaborate on; whatever it is i can help others with whenever I develop my skills. 
